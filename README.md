@@ -2,7 +2,7 @@
 - 👀 I’m interested in Nghành IT
 - 🌱 I’m currently learning @Cao Đẳng FPT Polyechnich
 - 💞️ I’m looking to collaborate on và học tập mọi người
-- 📫 You can contact me via : Sđt: 0979.01.6656
+- 📫 You can contact me via : Sđt: 0979.01.****
 - 😄 Pronouns: Java/Html/....
 - ⚡ Fun fact: mở mang kiến thức
 
